@@ -1,4 +1,4 @@
-## Hi there 👋
+## Aspiring AI Researcher & Data Scientist | Master’s Student in Computer Science
 - 📩 How to reach me: Jibriil.Laye@gmail.com
 - 📃 linkedin: https://www.linkedin.com/in/jibriil-gueye/
 - 😄 Pronouns: He/Him/His
